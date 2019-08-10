@@ -1,3 +1,3 @@
-Activity 1 & 2 Python \n
-Rañada, Mark Stephen M. \n
+
+Rañada, Mark Stephen M.
 BSIT - 2C
